@@ -1,6 +1,6 @@
 ## wip
 
-<!--
+<!--https://github.com/chance-time/chance-time/blob/b519036d469b251c13b17d32eafa2fb869abff1e/picmix.com_12646902.gif
 **chance-time/chance-time** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
