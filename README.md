@@ -1,4 +1,4 @@
-## wip
+## 99% OF GAMBLERS QUIT BEFORE THEY WIN BIG!
 ![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
 
 ᶻ 𝗓 𐰁 .ᐟ
@@ -24,3 +24,4 @@
 ❀⋆.ೃ࿔*:･
 
 ![image alt](https://github.com/chance-time/chance-time/blob/b519036d469b251c13b17d32eafa2fb869abff1e/picmix.com_12646902.gif)
+<img src="https://github.com/chance-time/chance-time/blob/b519036d469b251c13b17d32eafa2fb869abff1e/picmix.com_12646902.gif" width=512 height=512>
