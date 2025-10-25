@@ -5,11 +5,11 @@ chance fictkin.....blelelelel
 
 ![image alt](https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif)names :
 
-angel
+![image alt](https://i.postimg.cc/fLCwRMVd/2d8a4ce0.gif)angel
 
-nyan
+![image alt](https://i.postimg.cc/fLCwRMVd/2d8a4ce0.gif)nyan
 
-chance
+![image alt](https://i.postimg.cc/fLCwRMVd/2d8a4ce0.gif)chance
 
  ࣪ ˖ 𖦹°⋆
 
