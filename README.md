@@ -1,5 +1,6 @@
 ## 99% OF GAMBLERS QUIT BEFORE THEY WIN BIG!
 ![image alt](https://supplies.ju.mp/assets/images/gallery07/00c19b5e_original.gif?v=1c1ba870)![image alt](https://supplies.ju.mp/assets/images/gallery07/7a127ab8_original.gif?v=1c1ba870)
+
 ![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
 
 ᶻ 𝗓 𐰁 .ᐟ
