@@ -3,7 +3,7 @@
 
 ![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
 
-![image alt](https://64.media.tumblr.com/240ec320d0162e171142dc3773d37b93/1aceb5a3f53ca95d-f7/s400x600/66b6b48871299f05952cef04e17f1637b594a940.gif)
+![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
 ![image alt](https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif)names :
 
@@ -13,7 +13,7 @@
 
 ![image alt](https://i.postimg.cc/8CXxSKxL/sw-ibat.gif)chance
 
-![image alt](https://64.media.tumblr.com/240ec320d0162e171142dc3773d37b93/1aceb5a3f53ca95d-f7/s400x600/66b6b48871299f05952cef04e17f1637b594a940.gif)
+![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
 ![image alt](https://i.postimg.cc/fT5hFYyf/image0.gif)pronouns :
 
@@ -23,6 +23,6 @@
 
 ![image alt](https://i.postimg.cc/4dv6PfPn/55f628e0.gif)anything besides he/him or she/her basically...lol
 
-![image alt](https://64.media.tumblr.com/240ec320d0162e171142dc3773d37b93/1aceb5a3f53ca95d-f7/s400x600/66b6b48871299f05952cef04e17f1637b594a940.gif)
+![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
 ![image alt](https://github.com/chance-time/chance-time/blob/b519036d469b251c13b17d32eafa2fb869abff1e/picmix.com_12646902.gif)
