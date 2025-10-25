@@ -13,13 +13,13 @@
 
  ࣪ ˖ 𖦹°⋆
 
-pronouns :
+![image alt](https://i.postimg.cc/fT5hFYyf/image0.gif)pronouns :
 
-they / them
+![image alt](https://i.postimg.cc/Qtq4vxmf/shark-pixel.gif)they / them
 
-it / its
+![image alt](https://i.postimg.cc/dV050yB6/4a90fa1e9aa46fda1a026aba00eeac8c98a662ad.gif)it / its
 
-anything besides he/him or she/her basically...lol
+![image alt](https://i.postimg.cc/4dv6PfPn/55f628e0.gif)anything besides he/him or she/her basically...lol
 
 ❀⋆.ೃ࿔*:･
 
