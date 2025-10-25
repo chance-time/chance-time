@@ -1,5 +1,5 @@
 ## wip
-chance fictkin.....blelelelel
+![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
 
 ᶻ 𝗓 𐰁 .ᐟ
 
