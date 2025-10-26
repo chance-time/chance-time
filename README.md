@@ -25,4 +25,4 @@
 
 ![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
-![image alt](https://github.com/chance-time/chance-time/blob/b519036d469b251c13b17d32eafa2fb869abff1e/picmix.com_12646902.gif)
+![image alt](https://img1.picmix.com/output/pic/normal/2/0/9/6/12646902_c9765.gif)
