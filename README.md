@@ -3,6 +3,8 @@
 
 ![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
 
+![image alt](https://64.media.tumblr.com/04166904be74fac9048ab8ea6df371fe/c6e913aea8c8a172-a7/s75x75_c1/c7266eb1061de8691cea96d2a7ab7a44080d68b6.gifv)status meaning
+
 ![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
 ![image alt](https://64.media.tumblr.com/f1fd74cfeb2817777cf7695830ee1001/c6e913aea8c8a172-25/s75x75_c1/a77abf13d3856835dae9e0941c75eff785726aeb.gifv)🟢 or 🌙 , interact freely ! 
