@@ -5,14 +5,6 @@
 
 ![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
-![image alt](https://i.postimg.cc/Y0Ys1GDV/vxs6dz.gif)status meaning
-
-![image alt](https://64.media.tumblr.com/04166904be74fac9048ab8ea6df371fe/c6e913aea8c8a172-a7/s75x75_c1/c7266eb1061de8691cea96d2a7ab7a44080d68b6.gifv)🟢 or 🌙 , interact freely ! 
-
-![image alt](https://64.media.tumblr.com/d7cd07e2e7d71d921c2e930156d117ed/c6e913aea8c8a172-c8/s75x75_c1/61bbc6209d0f5e4beed0c26b2568491756b1bf09.gifv)⛔ , dniuf/id. not feeling the best, please interact with caution/care. PLEASE c+h if we're friends.
-
-![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
-
 ![image alt](https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif)names :
 
 ![image alt](https://i.postimg.cc/fLCwRMVd/2d8a4ce0.gif)angel
