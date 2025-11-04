@@ -17,11 +17,11 @@
 
 ![image alt](https://i.postimg.cc/fT5hFYyf/image0.gif)pronouns :
 
-![image alt](https://i.postimg.cc/Qtq4vxmf/shark-pixel.gif)they / them
+![image alt](https://i.postimg.cc/Qtq4vxmf/shark-pixel.gif)she / her (most pref)
 
-![image alt](https://i.postimg.cc/dV050yB6/4a90fa1e9aa46fda1a026aba00eeac8c98a662ad.gif)it / its
+![image alt](https://i.postimg.cc/dV050yB6/4a90fa1e9aa46fda1a026aba00eeac8c98a662ad.gif)they / them
 
-![image alt](https://i.postimg.cc/4dv6PfPn/55f628e0.gif)anything besides he/him or she/her basically...lol
+![image alt](https://i.postimg.cc/4dv6PfPn/55f628e0.gif)anything honestly i dont rlly care lol
 
 ![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
