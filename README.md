@@ -1,7 +1,7 @@
 ## 99% OF GAMBLERS QUIT BEFORE THEY WIN BIG!
 ![image alt](https://supplies.ju.mp/assets/images/gallery07/00c19b5e_original.gif?v=1c1ba870)![image alt](https://supplies.ju.mp/assets/images/gallery07/7a127ab8_original.gif?v=1c1ba870)![image alt](https://external-media.spacehey.net/media/sYnlM3fkQdnrsroa6En2dz_-wO1QfsoprgcNBhHDr3JA=/https://supplies.ju.mp/assets/images/gallery08/1ba01d55_original.gif?v=c214c26a)![image alt](https://adriansblinkiecollection.neocities.org/z6.gif)![image alt](https://adriansblinkiecollection.neocities.org/stamps/a7.gif)
 
-![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance fictkin.....blelelelel
+![image alt](https://i.postimg.cc/SsRcykkt/1018236644106719293.gif)chance + aubree kin .....blelelelel
 
 ![image alt](https://64.media.tumblr.com/2b218a8e8b9414b64a92d41f4f7ea428/5ffe864cc72d3596-49/s400x600/4fa87c15632522ce2eaf63e066696c6cd5756bb3.gifv)
 
