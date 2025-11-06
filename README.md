@@ -18,7 +18,7 @@
 
 ![image alt](https://i.imgur.com/kvHDjBo.gif)pronouns :
 
-![image alt](https://pixels.crd.co/assets/images/gallery84/81af3204.gif?v=29416114)she / her (most pref)
+![image alt](https://pixels.crd.co/assets/images/gallery84/81af3204.gif?v=29416114)she / her ( most pref )
 
 ![image alt](https://pixels.crd.co/assets/images/gallery18/bce7eba1.gif?v=29416114)they / them
 
