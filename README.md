@@ -5,23 +5,23 @@
 
 ![image alt](https://lifted.crd.co/assets/images/gallery01/e16aae4f.png?v=540c5116)
 
-![image alt](https://i.postimg.cc/T2ZNHHcX/1125992098693398538.gif)names :
+![image alt](https://i.imgur.com/yXpiMIt.gif)names :
 
-![image alt](https://i.postimg.cc/fLCwRMVd/2d8a4ce0.gif)aubree ( most pref )
+![image alt](https://i.imgur.com/vDattrN.gif)aubree ( most pref )
 
-![image alt](https://i.postimg.cc/63bCGJS7/4A6FF52C-ACF9-4DD1-A870-C89E2447ACD8.gif)angel
+![image alt](https://i.imgur.com/2vXCQIc.gif)angel
 
-![image alt](https://i.postimg.cc/8CXxSKxL/sw-ibat.gif)chance
+![image alt](https://i.imgur.com/arWmuJr.gif)chance
 
 ![image alt](https://lifted.crd.co/assets/images/gallery01/e16aae4f.png?v=540c5116)
 
-![image alt](https://i.postimg.cc/fT5hFYyf/image0.gif)pronouns :
+![image alt](https://i.imgur.com/kvHDjBo.gif)pronouns :
 
-![image alt](https://i.postimg.cc/Qtq4vxmf/shark-pixel.gif)she / her (most pref)
+![image alt](https://pixels.crd.co/assets/images/gallery84/81af3204.gif?v=29416114)she / her (most pref)
 
-![image alt](https://i.postimg.cc/dV050yB6/4a90fa1e9aa46fda1a026aba00eeac8c98a662ad.gif)they / them
+![image alt](https://pixels.crd.co/assets/images/gallery18/bce7eba1.gif?v=29416114)they / them
 
-![image alt](https://i.postimg.cc/4dv6PfPn/55f628e0.gif)anything honestly i dont rlly care lol
+![image alt](https://i.imgur.com/ORy41NV.gif)anything honestly i dont rlly care lol
 
 ![image alt](https://lifted.crd.co/assets/images/gallery01/e16aae4f.png?v=540c5116)
 
